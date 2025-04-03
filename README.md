@@ -194,5 +194,5 @@ Se precisar de ajuda ou tiver dúvidas, entre em contato:
 - **GitHub**: MalikRibeiro e CbYgor
 
 ---
-
+malik é gay
 **Desenvolvido com 💻 e ☕ por Malik Ribeiro e Ygor Pereira**
